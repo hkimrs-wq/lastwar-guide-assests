@@ -1,0 +1,1 @@
+# lastwar-guide-assests
